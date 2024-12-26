@@ -6,6 +6,7 @@ Impetigo: A common bacterial skin infection characterized by red sores or bliste
 Infected Cuts and Wounds: Prevents bacterial infections in minor injuries.
 Furunculosis: Treats boils caused by bacterial infections.
 Skin Infections: Effective against conditions caused by Staphylococcus aureus and Streptococcus pyogenes.
+
 Why Choose T-Bact Ointment?
 T-Bact Ointment is trusted by healthcare professionals for its targeted action against bacterial infections. Its compact 5g tube is convenient for personal use and travel. With mupirocin as its key ingredient, it provides effective relief from skin infections while being gentle on the skin.
 
